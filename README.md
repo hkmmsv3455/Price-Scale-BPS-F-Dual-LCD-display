@@ -1,0 +1,4 @@
+Price-Scale-BPS-F-Dual-LCD-display
+==================================
+
+101NHM1 Weigh ModuleSpecial features:● Load cell equivalent to NTEP 1:5 000 Class III, single cell● Alloy steel construction ● Center-pivoted, tension loading design, self- checking,multi-directional movement--Product name: BPS-FIntroduction1 Dual LCD display, backlighting or not .2 Both AC and DC can be used;3 Weighing display react swift, stable and accurate;4 Low battery will be informed by electricity amount indicator.5 Battery lasts for more thand 2 months for each charging.Capacity3kg6kg15kg30kgADivision1g2g5g10gBDivision0.5g1g2g5gPlatter289*239mmPowerAC:220V http://www.hzloadcell.com/pid11501381/Price+Scale-BPS-F+Dual+LCD+display.htm
